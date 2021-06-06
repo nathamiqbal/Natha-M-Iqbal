@@ -1,1 +1,2 @@
-# nathamiqbal.Natha-M-Iqbal
+I am NATHA M IQBAL
+student of KMEA ENGINEERING COLLEGE
